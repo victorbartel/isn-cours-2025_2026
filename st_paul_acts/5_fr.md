@@ -47,11 +47,6 @@
 
 ---
 
-Voici la **deuxième partie** de la fiche de révision, basée sur la suite de la conférence que vous avez fournie. Le professeur y détaille la profonde argumentation théologique de Paul concernant la foi, le rôle de la Loi de Moïse et l'allégorie des deux alliances.
-
----
-
-# 🇫🇷 FRANÇAIS
 
 # 📚 Plan de révision (Partie 2) : L'Épître aux Galates – L'argumentation théologique (Foi, Loi et Promesse)
 
